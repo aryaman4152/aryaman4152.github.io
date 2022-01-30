@@ -9,3 +9,12 @@ Third-year undergraduate student at The University of Queensland, studying a dua
 
 
 [aryaman.sharma@uqconnect.edu.au](mailto:email@domain.com)
+
+
+
+<br>
+
+
+#### Reading list 2022
+1. Guns Germs and Steel, Jared Diamond
+2. What Makes Us Curious, Mario Livio
