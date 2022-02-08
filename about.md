@@ -18,3 +18,6 @@ Third-year undergraduate student at The University of Queensland, studying a dua
 #### Reading list 2022
 1. Guns Germs and Steel, Jared Diamond
 2. What Makes Us Curious, Mario Livio
+3. Upheaval, Jared Diamond
+4. The Republic, Plato
+5. Entangled Life, Merlin Sheldrake
